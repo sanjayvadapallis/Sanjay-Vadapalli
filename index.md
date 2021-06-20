@@ -15,7 +15,7 @@ Sanjay is working closely with Guru Kala Krishna to propagate Navajanardhana Par
 
 Sanjay has won the below awards and honors.
 
-``` Awards, Honours, and Titles
+```Awards, Honours, and Titles
 
 
 1. Bharatiya KalaSree Sanman” by Indian Dance Association Bhubaneshwar, 2018
@@ -36,7 +36,7 @@ Sanjay has won the below awards and honors.
 ### Major Performances in National & International Festivals
 
 
-``` Major Performances in National & International Festivals
+```Major Performances in National & International Festivals
 
 
 1. Performed at UNESCO PEACEMAKERS CULTURAL CELEBRATIONS held at Hong Kong #UNESCOHK in 2019
