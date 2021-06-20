@@ -1,4 +1,4 @@
-#Sanjay Vadapalli
+# Sanjay Vadapalli
 
 Sanjay started learning Andhra Natyam and Perini at the young age of 8 from renowned Guru, Scholar and Musicologist, PadmaSri Dr. Nataraja Rama Krishna. Later he learned NavaJanardhana Parijatam,‟ one of the solo performing art traditions of Andhra Pradesh, under the able guidance of Guru Kala Krishna. Guru Dr. Nataraja Ramakrishna and Guru Kala Krishna have trained Sanjay so methodically taking care of the minutest details for over 5 years and made him a worthy exponent of Sathyabhama's role as depicted in the solo ballet “NavaJanardhanam‟ bringing out all the complex qualities of Sathyabhama.
 A teacher‟s efforts bear fruit only in a worthy disciple. A worthy Guru and a worthy disciple are both blessed in each other. The team of Dr. Nataraja Rama Krishna and Sanjay is a fine example of this ideal combination. At age 9, Sanjay started performing in local functions and virtually walked into many dance lovers' hearts with his expressive mime and brilliant footwork. Soon he started performing in National events organized in Mumbai, New Delhi, Chennai, Bangalore, Kolkatta, and Benaras. His abhinaya as Sathyabhama fetched him a gold medal. He received accolades from Dr. Vempati Chinna Satyam, Kathak exponent Guru Birju Maharaj, Kathak queen Sitara Devi and other noted dance exponents. Recognizing his talent, Director K. Vishwanath offered in his film Srutilayalu.
@@ -10,6 +10,7 @@ A teacher‟s efforts bear fruit only in a worthy disciple. A worthy Guru and a 
 Sanjay is considered one of the best Andhra Natyam dancers in the art circles. He was awarded many titles namely "Natya Kala Ratna" “Natya Kumara” Nrutya Kowmudhi” and National Integration Award. He is a certified “B” grade artist by Doordarshan. Sanjay has choreographed songs, dance drams and performed them in various events, festivals around the world including the USA, UK, and Hong Kong. Sanjay is currently based in Hong Kong and performs in the Hong Kong art circles and teaches to enthusiastic students.
 
 Sanjay is working closely with Guru Kala Krishna to propagate Navajanardhana Parijatam to the next generations. Some of the planned activities include collecting, cataloging the 3 days songs, recording the audio and video of the songs. Another project Sanjay is working on is to establish a “Guru Nataraja Ramakrishna Pratibha puraskaram” for the upcoming performing artists. He performed in National events organized by AP Bhavan, New Delhi in 1988 and 1994.
+
 ### Awards, Honours, and Titles
 
 Sanjay has won the below awards and honors.
@@ -29,11 +30,10 @@ Sanjay has won the below awards and honors.
 
 6. Appreciations from Kona Prabhakar Rao, Governor of Maharashtra in 1986, and Kumudben Joshi, Governor of Andhra Pradesh in 1989
 
-7.Grade “B” artist by Doordarshan, India – 1989
-
+7. Grade “B” artist by Doordarshan, India – 1989
 ```
-### Major Performances in National & International Festivals
 
+### Major Performances in National & International Festivals
 
 
 ```Major Performances in National & International Festivals
