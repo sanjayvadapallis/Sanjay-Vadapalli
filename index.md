@@ -11,6 +11,8 @@ Sanjay is considered one of the best Andhra Natyam dancers in the art circles. H
 
 Sanjay is working closely with Guru Kala Krishna to propagate Navajanardhana Parijatam to the next generations. Some of the planned activities include collecting, cataloging the 3 days songs, recording the audio and video of the songs. Another project Sanjay is working on is to establish a “Guru Nataraja Ramakrishna Pratibha puraskaram” for the upcoming performing artists. He performed in National events organized by AP Bhavan, New Delhi in 1988 and 1994.
 
+https://www.youtube.com/watch?v=dLC2imN-93A&t=336s
+
 ### Awards, Honours, and Titles
 
 Sanjay has won the below awards and honors.
